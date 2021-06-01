@@ -6,7 +6,7 @@
 ### Hi there! <img src="https://media.giphy.com/media/hvRJCLFzcasrR4ia7z/giphy.gif" width="29px">
 Developer by 🎓 Profession.
 
-Codeing :computer: :space_invader: | Developer :dart: | Learner :telescope: :bookmark_tabs: | Explorer :rocket: 
+Codeing :computer: :space_invader: | Developer :dart: 🦾 | Learner :telescope: :bookmark_tabs: | Explorer 🛰 👨‍🚀
 
 Vist for more info: [leo.ka](https://leoka1993.wixsite.com/leoka) <img alt="Website" src="https://img.shields.io/website?url=https%3A%2F%2Fleoka1993.wixsite.com%2Fleoka">
 
